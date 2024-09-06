@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @syyy04
 - 👀 I’m interested in music production and trying to understand programming
-- 🌱 I’m currently learning Media Technology and Design in Hagenberg, Austria
+- 🌱 I’m currently studying Media Technology and Design in Hagenberg, Austria
 - 📫 How to reach me @simon.saurer on Instagram
 - 😄 Pronouns: they/them
 - ⚡ Fun fact: I hate economics
